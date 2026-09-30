@@ -54,7 +54,6 @@ And somewhere inside all of these records was the information they were looking 
 
 The next clue was waiting here:
 
-[YOUR LINK / HIDDEN CLUE GOES HERE]
 
 Nobody noticed it immediately.
 
